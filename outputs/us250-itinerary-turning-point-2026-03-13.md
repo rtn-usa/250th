@@ -158,7 +158,7 @@ Ethan Allen arrived at these walls with 83 men and no artillery plan. He left wi
 
 *Don't miss:* the view from the ramparts looking north across Lake Champlain to Mount Defiance — the high ground the British seized in July 1777 to force the American evacuation. Stand on the wall and understand why control of this point meant control of the continent.
 
-*Practical:* Open daily May–Oct, 9:30 AM–5 PM. Adults $26. 102 Fort Ti Road, Ticonderoga. fortticonderoga.org. US250 2026: REAL TIME REVOLUTION programming all season — immersive living history events tied to the 250th anniversary. Book ahead.
+*Practical:* Tue–Sun, May 2–Oct 25, 2026, 9:30 AM–5 PM (last ticket 4:30 PM). Buy one day, visit the next day free. 102 Fort Ti Road, Ticonderoga. fortticonderoga.org. US250 2026: REAL TIME REVOLUTION programming all season — highlights include "Return of an Army" (Jul 3–5), first Declaration reading to troops (Jul 28), fleet and fortification weekend (Aug 29–30), and major battle reenactment (Oct 24–25). Book ahead at fortticonderoga.org.
 
 ---
 
