@@ -35,7 +35,7 @@ Between September 19 and October 7, 1777, two battles on these fields — Freema
 
 *Don't miss:* the Boot Monument at Stop 7 on the tour road — a carved bas-relief of a military boot honoring "the most brilliant soldier of the Continental Army." Arnold's name is deliberately left off the pedestal. The blank space where it should be says more than any inscription.
 
-*Practical:* Battlefield tour road open daily Apr–Nov; visitor center year-round. Free admission (fee-free NPS unit). 648 Route 32, Stillwater. nps.gov/sara. US250 2026: Major anniversary programming planned for summer and fall — check nps.gov/sara for schedule.
+*Practical:* Battlefield tour road open daily Apr–Nov, 9 AM–6 PM; visitor center year-round, 9 AM–5 PM. Free admission (fee-free NPS unit). 648 Route 32, Stillwater. nps.gov/sara. US250 2026: Victory Season Living History Weekend Oct 10–11; Turning Point Symposium May 2; recreation of Knox's Noble Train of Artillery; July 4th celebration at Saratoga Racetrack. Full schedule at saratoga250.com.
 
 ---
 
@@ -47,6 +47,17 @@ After Burgoyne retreated north from the battlefield, he burned Schuyler's countr
 *Don't miss:* the view from the back of the house toward the Hudson — the same view Schuyler saw when he chose to rebuild on scorched ground.
 
 *Practical:* Open weekends, Memorial Day through Labor Day. Free admission. Route 4, Schuylerville. nps.gov/sara
+
+---
+
+**Saratoga Surrender Site**
+Schuylerville, Saratoga County · 30 minutes
+
+On October 17, 1777, Burgoyne's 5,895 men laid down their arms in this field along the Hudson — the first time an entire British army had surrendered in history. The 19-acre site is quiet now. A granite wall faces the river, and a bronze bas-relief reproduces John Trumbull's painting *The Surrender of General Burgoyne* — the original hangs in the U.S. Capitol Rotunda. The landscape hasn't changed much since 1777. Stand at the plaza overlooking the Hudson and you're seeing essentially the same view the surrendering army saw.
+
+*Don't miss:* the bronze bas-relief of Trumbull's *Surrender of General Burgoyne* — then compare it to the original next time you're in the Capitol.
+
+*Practical:* Grounds open dawn to dusk, year-round. Free. Route 4, half mile south of Schuylerville. nps.gov/sara
 
 ---
 
@@ -181,7 +192,7 @@ Itinerary: The Turning Point
 Arc: How did one valley, one summer, and one surrender change the world?
 Duration: 3 days
 Region(s): Capital-Saratoga, Mohawk Valley, Adirondacks
-Sites: 10 stops
-Spreadsheet rows added: 10
+Sites: 11 stops
+Spreadsheet rows added: 11
 RTN rural stop(s): Crown Point (pop. 2,000), Schoharie (pop. 1,200), Little Falls (pop. 4,500)
 ```
