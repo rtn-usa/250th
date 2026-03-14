@@ -24,7 +24,7 @@ Philip Schuyler was the Continental Army's second-in-command in the north, a log
 
 *Don't miss:* the hatchet marks on the front staircase railing — scars from the 1781 Loyalist raid that attempted to kidnap Schuyler and nearly succeeded.
 
-*Practical:* Mid-May through October, Wed–Sun. Free admission. 32 Catherine Street, Albany. nysparks.com
+*Practical:* Wed–Sun, guided tours on the hour, 11 AM–4 PM. Adults $5, seniors/students $4, under 12 free. Reservations required: (518) 434-0834. 32 Catherine Street, Albany. parks.ny.gov
 
 ---
 
@@ -124,7 +124,7 @@ Schoharie is a county seat of 1,200 people. The Old Stone Fort Museum on the edg
 
 *Don't miss:* the Palatine German genealogy collection — if your family came through the Schoharie Valley, the records here go back to 1710.
 
-*Practical:* May–Oct, Tue–Sat, 10 AM–5 PM. Adults $7. 145 Fort Road, Schoharie. theoldstonefort.org
+*Practical:* May–Oct; Jun–Sep Mon/Tue/Fri 10 AM–4 PM, weekends 10 AM–5 PM (closed Wed–Thu except by appointment). Adults $10, under 18 free. 145 Fort Road, Schoharie. (518) 295-7192. theoldstonefort.org
 
 ---
 
@@ -147,7 +147,7 @@ Two days after Allen took Ticonderoga, Seth Warner captured Crown Point — and 
 
 *Don't miss:* the ruins of Fort St. Frederic — the French fortification that preceded the British fort. The scale of the walls, crumbling into the lake, is the most dramatic physical remnant of the colonial wars in New York.
 
-*Practical:* Grounds open May–Oct, Wed–Sun, 9:30 AM–5 PM. Free admission (parking fee in season). 739 Bridge Road, Crown Point. nysparks.com
+*Practical:* Museum Wed–Sun, 10 AM–5 PM, mid-May through mid-Oct. Adults $5, seniors/veterans $4, under 12 free. Grounds sunrise to sunset year-round (free). 21 Grandview Drive, Crown Point. (518) 597-3666. parks.ny.gov
 
 ---
 

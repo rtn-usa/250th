@@ -349,7 +349,7 @@ rows = [
     {
         "external_id": slugify("Crown Point State Historic Site"),
         "location_name": "Crown Point State Historic Site",
-        "street_address": "739 Bridge Road",
+        "street_address": "21 Grandview Drive",
         "city": "Crown Point",
         "region_id": "Essex County",
         "latitude": "43.9430",
