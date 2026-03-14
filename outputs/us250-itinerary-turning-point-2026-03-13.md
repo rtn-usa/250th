@@ -91,7 +91,7 @@ In August 1777, Colonel Peter Gansevoort held this frontier fort with 550 men ag
 
 *Don't miss:* the 1768 Treaty of Fort Stanwix exhibit — the document that redrew the boundary between colonial settlement and Haudenosaunee territory, and the chain of consequences that hasn't ended.
 
-*Practical:* Open daily, 9 AM–5 PM, Apr–Dec. Free admission. 112 East Park Street, Rome. nps.gov/fost
+*Practical:* Tue–Sat, 9 AM–5 PM (closed Sun–Mon). Free admission. 112 East Park Street, Rome. 315-338-7730. nps.gov/fost
 
 ---
 
@@ -102,7 +102,7 @@ The bloodiest battle of the Revolutionary War by casualty rate happened here, in
 
 *Don't miss:* the Herkimer monument at the center of the site — and then stand at the edge of the ravine where the ambush began. The terrain explains the battle better than any exhibit.
 
-*Practical:* Grounds open dawn to dusk, year-round. Free admission. 7801 State Route 69, Oriskany. parks.ny.gov
+*Practical:* Mid-May through mid-Oct; Wed–Sat, 9 AM–5 PM; Sun, 1–5 PM. Free admission. 7801 State Route 69, Oriskany. parks.ny.gov
 
 ---
 
@@ -113,7 +113,7 @@ Nicholas Herkimer was carried from Oriskany to this house on the Mohawk River, w
 
 *Don't miss:* the room where Herkimer died — the family Bible and the bed placement are based on period accounts. The quietness of the room against the violence of the story is the point.
 
-*Practical:* Mid-May through Oct, Wed–Sun, 10 AM–5 PM. Free admission. 200 State Route 169, Little Falls. nysparks.com
+*Practical:* Mid-May through mid-Oct; Wed–Sat, 10 AM–5 PM; Sun, 1–5 PM. Tours hourly from 10 AM (last at 4 PM). Adults $4, seniors/students $3, under 12 free; grounds free. 200 State Route 169, Little Falls. 315-823-0398. parks.ny.gov
 
 ---
 
